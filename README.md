@@ -1,0 +1,2 @@
+# SauNguoiChotVot
+Nhóm Sáu Người
